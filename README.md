@@ -1,4 +1,4 @@
-# The_Theory_of_social_Organism
+# The_Theory_of_Social_Organism
 The Hypothesis of novel Social Organism Theory
 
 https://www.youtube.com/watch?v=RSwVKznzhek
